@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg&w=1000)Today: [西南阿连特茹和维森廷海岸自然公园上空���银河，葡萄牙 (© Daniel Garrido/Getty Images)](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg&w=1000)Today: [西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙 (© Daniel Garrido/Getty Images)](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-09-18 [download 4k](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-09-18 [download 4k](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-09-17 [download 4k](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|

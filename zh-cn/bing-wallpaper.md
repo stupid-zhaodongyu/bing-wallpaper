@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-08 | [胡德山，俄勒冈州，美国 (© Inigo Cia/Getty Images)](https://cn.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-07 | [圣詹姆斯潮汐池，开普敦，南非 (© AmazingAerialAgency/Adobe)](https://cn.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-07 | [圣詹姆斯潮汐池，���普敦，南非 (© AmazingAerialAgency/Adobe)](https://cn.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
